@@ -17,3 +17,8 @@ https://projectt-liard.vercel.app/
 
 
 ![projectt-liard vercel app_ (2)](https://github.com/user-attachments/assets/c3f072a8-8538-40fd-9785-cdb252a04a2c)
+
+
+
+
+![projectt-liard vercel app_shop_1](https://github.com/user-attachments/assets/688857bc-898c-401f-b5b5-c1d189ab2a4f)
